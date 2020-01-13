@@ -1,1 +1,1 @@
-# SangireddyVivekananda.github.io
+vivekanandareddy.github.io
